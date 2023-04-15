@@ -10,6 +10,7 @@
 - 📫 How to reach me **moudgiladitya08@gmail.com**
 
 - 📄 Sharing Updates on [Linkedin (https://www.linkedin.com/in/adityamoudgil/)](Linkedin (https://www.linkedin.com/in/adityamoudgil/))
+- 📄 Resume: [https://drive.google.com/file/d/1e5XfkJPBtCleXyYyHVUrCTrMkme5IY4f/view?usp=share_link] (http://surl.li/gjyek)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
